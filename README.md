@@ -1,7 +1,7 @@
 ![WebDeveloper](https://pbs.twimg.com/profile_banners/1428590936058068992/1629439873/1080x360)
 ### Hi there 👋, I'am Razib Hossain
 #### WebDeveloper
-![WebDeveloper](https://pbs.twimg.com/profile_banners/1428590936058068992/1629439873/1080x360)
+
 
 Hi there! Thank you for visiting my profile.
 Are you looking for a qualified Website Designer that can design a brand new Website for your company?
